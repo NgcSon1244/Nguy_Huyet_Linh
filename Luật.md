@@ -19,6 +19,8 @@
 
 # hashtag grp : #penguin_star🐧✨(kh has quá 10 lần=kick)
 
+# set bd của gr : ⋆˚࿔ 𝐧𝐚𝐦𝐞 𝜗𝜚˚⋆
+
 # Nếu như bạn phạm vi các luật trên, bạn sẽ bị các mức độ sau đây 
 | lần 1: nhắc nhở ![hài vl](Images/received_725150183366812.jpeg)                                                |
 |--------------------------------------------------------------------------|
