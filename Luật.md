@@ -17,7 +17,7 @@
 | -không gây war                                                                                                    |
 | -Kh lơ tv trong grp  
 
-# hashtag grp : #penguin_star🐧✨(kh has quá 10 lần=kick)
+# hashtag grp : #penguin_star🐧✨, #💫Noviravelka✨ (kh has quá 10 lần=kick)
 
 # set bd của gr : ⋆˚࿔ 𝐧𝐚𝐦𝐞 𝜗𝜚˚⋆
 
