@@ -17,16 +17,22 @@
 | -không gây war,kiếm chuyện                                                                                      |
 | -Kh lơ tv trong grp  
 
-# hashtag grp : #penguin_star🐧✨, #💫Noviravelka✨ (kh has quá 10 lần=kick)
+hashtag grp :
 
-# set bd của gr : ⋆˚࿔ 𝐧𝐚𝐦𝐞 𝜗𝜚˚⋆
+|hashtag chính: #penguin_star🐧✨|
+|-------------------------------|
+|hashtag đối tác:  #💫Noviravelka✨|
+
+note:kh dc hashtag quá 10 lần=kick
+
+ set bd của gr : ⋆˚࿔ 𝐧𝐚𝐦𝐞 𝜗𝜚˚⋆
 
 # Nếu như bạn phạm vi các luật trên, bạn sẽ bị các mức độ sau đây 
 | lần 1: nhắc nhở ![hài vl](Images/received_725150183366812.jpeg)                                                |
 |--------------------------------------------------------------------------|
 | Lần 2: ra đảo 1 ngày ![testing](Images/t%E1%BA%A3i%20xu%E1%BB%91ng.jpeg) |
 | Lần 3: ra đảo 2 ngày ![testing](https://i.imgur.com/DFpeu.jpg)           |
-| Lần 4: mời bạn rời khỏi gr                                           |
+| Lần 4: xách ba lô và đi                                    |
 # luật,hashtag gr, setbd đều dược làm bởi:
 
 | ⋆˚࿔ NgcSon 𝜗𝜚˚⋆(người đưa lên web)|
