@@ -16,6 +16,7 @@
 | • Boss/Pboss sẽ đưa bd cho cậu để cậu tự set ạ                                                                    |
 | • Không gây war,kiếm chuyện                                                                                      |
 | • Kh lơ tv trong grp  
+| + Không gửi 18+, gacha heat và các nội dung gây khó chịu.                                                          |
 
 
 --------------------------------------------
