@@ -18,6 +18,23 @@
 | • Kh lơ tv trong grp  
 | • Không gửi 18+, gacha heat và các nội dung gây khó chịu                                                          |
 
+-------------------------------------------
+
+
+
+|Kh nhận lý do out:|
+|------------------------------|
+|- chia tay,chia chân.         |
+
+
+|có thể để # off kèm vs lý do(quá 2 tháng sẽ lọc)|
+|------------------|
+|Hư điện thoại,laptop(pc)|
+|Bận việc riêng|
+
+Note: hiện tại phần này chưa dc hoàn thiện cho lắm,mong mọi người có thể góp ý giúp gr ạ.
+
+
 
 --------------------------------------------
 
