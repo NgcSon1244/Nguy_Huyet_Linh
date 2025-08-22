@@ -1,4 +1,4 @@
-![testing](Images/received_1042652694598944.jpeg)
+![testing](Images/Messenger_creation_759368050044794.jpeg)
 | !! LUẬT CỦA GR !!                                                                                                 |
 |-------------------------------------------------------------------------------------------------------------------|
 | • Không toxic
@@ -40,7 +40,7 @@ Note: hiện tại phần này chưa dc hoàn thiện cho lắm,mong mọi ngư�
 
 # hashtag gr
 
-|hashtag chính: #penguin_star🐧✨|
+|hashtag chính: #NguyHuyetLinh🥀🍷|
 |-------------------------------|
 |hashtag đối tác:  #💫Noviravelka✨|
 
@@ -62,6 +62,6 @@ note:kh dc hashtag quá 10 lần=kick
 
 # luật,hashtag gr, setbd đều dược làm bởi:
 
-| ⋆˚࿔ NgcSon 𝜗𝜚˚⋆(người đưa lên web)|
+| NgcSon(người đưa lên web)|
 |-----------------------------------|
-|⋆˚࿔ 𝐘𝐨𝐬𝐡𝐢 𝜗𝜚˚⋆ #boss (làm luật và chỉnh sửa luật)|
+| 𝐘𝐨𝐬𝐡i(làm luật và chỉnh sửa luật)|
