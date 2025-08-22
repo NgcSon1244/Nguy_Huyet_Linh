@@ -52,9 +52,9 @@ note:kh dc hashtag quá 10 lần=kick
  note:cày dc lv bấy nhiêu set lv ở biệt danh bấy nhiêu 
 
 # Nếu như bạn phạm vi các luật trên, bạn sẽ bị các mức độ sau đây 
-| lần 1: nhắc nhở ![hài vl](Images/received_725150183366812.jpeg)                                                |
+| lần 1: nhắc nhở thân thương ![hài vl](Images/received_1477822670037586.jpeg)                                                |
 |--------------------------------------------------------------------------|
-| Lần 2: ra đảo 1 ngày ![testing](Images/t%E1%BA%A3i%20xu%E1%BB%91ng.jpeg) |
+| Lần 2: đẩy xuống the backroooms 1 ngày ![testing](Images/Messenger_creation_676146122152391.jpeg) |
 | Lần 3: ra đảo 2 ngày ![testing](https://i.imgur.com/DFpeu.jpg)           |
 | Lần 4: xách ba lô và đi                                    |
 
