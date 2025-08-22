@@ -56,7 +56,7 @@ note:kh dc hashtag quá 10 lần=kick
 |--------------------------------------------------------------------------|
 | Lần 2: đẩy xuống the backroooms 1 ngày ![testing](Images/Messenger_creation_676146122152391.jpeg) |
 | Lần 3: ra đảo 2 ngày ![testing](https://i.imgur.com/DFpeu.jpg)           |
-| Lần 4: xách ba lô và đi                                    |
+| Lần 4: xách ba lô và đi ![balo](Images/Messenger_creation_1281565777050706.jpeg)                                    |
 
 ---------------------------------------
 
