@@ -1,4 +1,4 @@
-![testing](Images/Messenger_creation_759368050044794.jpeg)
+![testing](Images/Messenger_creation_2320820828338399.jpeg)
 # được dựa trên luật gr của đối tác 
 
 Ngụy Huyết Linh là 1 group gacha có hệ thống website riêng, được host bởi đối tác group hệ thống lĩnh vực,level, nhiệm vụ hàng ngày, giấy khen và các hoạt động khác.
